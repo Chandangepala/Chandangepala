@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Chandan 
 - 👀 I’m an Passionate App Developer
 - 🌱 I’m always learning new technologies
-- 💞️ I’m looking to collaborate on Android and Cross-Plateform Apps
+- 🤝 I’m looking to collaborate on Android and Cross-Plateform Apps
 - 📫 How to reach me ...
 email me: chandangepala@gmail.com
 whatsapp me: +919509952931
