@@ -41,4 +41,4 @@ I'm actively looking for new opportunities and collaborations. If you have an in
 
 * **Email:** [chandangepala@gmail.com](mailto:chandangepala@gmail.com)
 * **WhatsApp:** [+91 95099 52931](https://wa.me/919509952931)
-* **LinkedIn:** [linkedin.com/in/your-linkedin-username](https://linkedin.com/in/chandangepala) 
+* **LinkedIn:** [linkedin.com/in/chandangepala](https://linkedin.com/in/chandangepala) 
